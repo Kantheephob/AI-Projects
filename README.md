@@ -1,1 +1,1 @@
-Initail AI projects collection
+
